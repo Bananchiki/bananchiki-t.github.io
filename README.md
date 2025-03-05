@@ -1,1 +1,0 @@
-# bananchiki-t.github.io
